@@ -1,3 +1,3 @@
 # HaHa-GTM-Videos
 #html #coding #youtube #videos
-Thsnks to UNCLECODE whp teach coding
+Thsnks to UNCLECODE who teach coding
